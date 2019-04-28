@@ -1,5 +1,5 @@
 # Brutalizing-Plan
-> 文明其精神。野蛮其体魄  
+> 文明其精神，野蛮其体魄  
 brutalizing your body
 
 ## 运动记录
